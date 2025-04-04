@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TutuMaia75
+- I'm a scientist aspirant, learning R for create some research to my med school
+- 
